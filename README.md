@@ -42,7 +42,7 @@ If something here resonates, let's talk.
 
 ## Get in touch
 
-[minimalmind.co.uk](https://minimalmind.co.uk)
+[minimalmind.io](https://minimalmind.io)
 
 ---
 
